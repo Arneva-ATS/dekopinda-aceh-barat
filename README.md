@@ -1,1 +1,1 @@
-# dekopinda-aceh-barat
+# dekopinda-karanganyar
